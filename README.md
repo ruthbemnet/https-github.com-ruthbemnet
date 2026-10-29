@@ -10,6 +10,6 @@ Technical Recruiter | Connecting exceptional talent with opportunities across th
 
 Let's connect and grow together!
 
-Connect with me on LinkedIn
+Connect with me on LinkedIn: www.linkedin.com/in/ruth-bemnet-4482a7339
 
 
